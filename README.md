@@ -10,4 +10,4 @@
 - 多媒體文學：單戀少女的自白
 
 ## Notion 筆記
-- https://dreamgugu.notion.site/4b1ea8f845524337ac5c7b8e6658b4c6?pvs=4
+- 菇菇窩 - https://dreamgugu.notion.site/4b1ea8f845524337ac5c7b8e6658b4c6?pvs=4
